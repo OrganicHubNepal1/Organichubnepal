@@ -1,1 +1,1 @@
-# Organichubnepal
+# OrganicHubNepal
